@@ -3,7 +3,7 @@
 
 ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎  ‎  ‎  ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎‎‎[atabook](https://yusions.atabook.org/) ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎‎‎[strawpage](https://yuslon.straw.page) ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎[rentry](https://rentry.co/yusions)
 
-![](https://files.catbox.moe/ko61gl.png)
+ ‎‎ ‎ ‎‎ ‎ ‎‎  ‎‎    ![](https://media.discordapp.net/attachments/1067930843470909460/1449863820700025014/IMG_3421.png?ex=69407268&is=693f20e8&hm=b09f63c13f0c8071b432b94a9d8e2999f4fe3e799dac344ff1b5936d49e879a4&=&format=webp&quality=lossless)
 
 <!--
 **yusions/yusions** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
