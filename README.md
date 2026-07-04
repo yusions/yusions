@@ -6,9 +6,9 @@
 
 ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
- ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎   ![](https://media.discordapp.net/attachments/1067930843470909460/1522957866724491466/IMG_5989.png?ex=6a4a5c8a&is=6a490b0a&hm=146baf7c1f3b64e78dded9bd7726c5ded06dba6ea94fe2b8b73aadc316ffa76e&=&format=webp&quality=lossless)
+![](https://media.discordapp.net/attachments/1067930843470909460/1522957866724491466/IMG_5989.png?ex=6a4a5c8a&is=6a490b0a&hm=146baf7c1f3b64e78dded9bd7726c5ded06dba6ea94fe2b8b73aadc316ffa76e&=&format=webp&quality=lossless)
 
-‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎  [‎新𝗕𝗢𝗢𝗞‎‎](https://yusions.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ [𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘](https://yusionss.straw.page) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ [♡ 𝐆𝐔𝐍𝐒](https://guns.lol/yusions)
+‎ [‎新𝗕𝗢𝗢𝗞‎‎](https://yusions.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ [𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘](https://yusionss.straw.page) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ [♡ 𝐆𝐔𝐍𝐒](https://guns.lol/yusions)
 </h4>‎ ‎‎   ‎ ‎ ‎ ‎ ‎‎   ‎ ‎ ‎ ‎ ‎‎   ‎ ‎ ‎ ‎ ‎‎   ‎ ‎ ‎ ‎ ‎‎   ‎ ‎ ‎ ‎ ‎‎   ‎ ‎ ‎ ‎ ‎‎    ‎ ‎ ‎ ‎ ‎‎    ‎ ‎ ‎ ‎ ‎‎    ‎ ‎ ‎ ‎ ‎‎   ‎ ‎ ‎ ‎ ‎‎   ‎ ‎ ‎ ‎ ‎‎   ‎ ‎ ‎ ‎ ‎  ‎ 
 <!--
 **yusions/yusions** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
