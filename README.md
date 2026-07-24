@@ -4,7 +4,7 @@
 ‎
 ‎ 
 
-![](https://media.discordapp.net/attachments/1067930843470909460/1530267112185139250/IMG_6672.png?ex=6a64f3ce&is=6a63a24e&hm=8acb4ba7eb5ff5334accc0a7add330ef363a2dbc3cede741d7b7a744adde7977&=&format=webp&quality=lossless&width=550&height=310)
+![](https://media.discordapp.net/attachments/1067930843470909460/1530264663542071296/IMG_6666.png?ex=6a64f186&is=6a63a006&hm=2acbe2ec9f47dbf2c7ac0c1c3895a1eeafefa1286306a780ddea246ced248827&=&format=webp&quality=lossless)
 
 ‎ [‎新𝗕𝗢𝗢𝗞‎‎](https://yusions.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ [𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘](https://yusionss.straw.page) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ [𐂃 𝗛𝗨𝗥𝗧](https://guns.lol/yusions)
 </h4>‎ 
